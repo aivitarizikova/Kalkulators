@@ -1,1 +1,1 @@
-Programešana Rigas 1 Talmacību Vidusskola Aivita Rižikova
+Programešana Rigas 1 Talmacības Vidusskola Aivita Rižikova
